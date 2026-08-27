@@ -1,3 +1,3 @@
 *Welcome to Ron's guest book*
 
--Test edit two
+Hi guys hope you are doing well and enjoying studies so far :)
